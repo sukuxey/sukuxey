@@ -3,7 +3,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his, (i'm trans that's why
                                                       ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                              
-☆ ╰┈➤  I'm free to c+h with you, even if i have a "busy" sign in my name, but if i'm with friends or my bf then sorry.
+☆ ╰┈➤  I'm free to c+h with you, even if i have a "⛔" sign in my name, but if i'm with friends or my bf then sorry.
 
 𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼 . .
 
