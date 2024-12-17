@@ -11,7 +11,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his, (i'm trans that's why
 ☆ ╰┈➤ I'm Akito Shinonome stan :3 . (he's my fav . my pjsk ID is in my status)
 
 
-☆ ╰┈➤ I play pjsk, pt obv, roblox, and i can play more if you'll recommend me smth.
+☆ ╰┈➤ I play pjsk, pt obv, roblox, league of legends and i can play more if you'll recommend me smth.
 
 
 ☆ ╰┈➤ I really like making friends so pls bmf, i would appreciate it. . DO NOT copy my skins.
