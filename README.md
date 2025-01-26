@@ -18,7 +18,8 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his, (i'm trans that's why
 
 
 
-  ![image](https://github.com/user-attachments/assets/25683722-84bf-4f12-98c6-80fe4d33cb77)
+  ![image](https://github.com/user-attachments/assets/85a9fd3e-da9d-4636-95a0-72e1afb76783)
+
 
 
 
