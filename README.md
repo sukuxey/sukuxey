@@ -24,7 +24,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his, (i'm trans that's why
 
           ᯤ i love all my moots . i'm very likely to be kinda shy when i meet someone (If it's not a problem :p) 
 ➜
-https://static.wikitide.net/projectsekaiwiki/0/0e/Stamp0838.png ᯓ★ More info for pjsk: My fav group is vbs, (i have a lot of fav pjsk songs)
+![image](https://github.com/user-attachments/assets/deff90ae-f966-4771-b5e5-5592953ce38f) ᯓ★ More info for pjsk: My fav group is vbs, (i have a lot of fav pjsk songs)
 
 
 
