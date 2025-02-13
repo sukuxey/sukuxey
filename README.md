@@ -1,5 +1,5 @@
                                                           ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-WELCOME . Hey, my name is Alan, my pronous are he/him/his, (i'm trans that's why) 
+WELCOME . Hey, my name is Alan, my pronous are he/him/his. 
                                                       ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                              
