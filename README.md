@@ -10,7 +10,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm
 
 ☆ ╰┈➤ I'm Akito Shinonome stan :3 . (he's my fav . my pjsk ID is in my status) 
 
-☆ ╰┈➤ Dc: .forgottelove , TT alt: unlovere
+☆ ╰┈➤ Dc: .forgottenlove , TT alt: unlovere
 
 ☆ ╰┈➤ I play pjsk, pt obv, roblox, league of legends and i can play more if you'll recommend me smth.
 
