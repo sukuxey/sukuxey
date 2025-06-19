@@ -1,5 +1,5 @@
                                                           ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
-WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm 
+WELCOME . Hey, my name is Alan, my pronous are he/him/his. I'm 14. I love my bf sm 
                                                       ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                              
