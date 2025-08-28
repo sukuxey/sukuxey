@@ -19,7 +19,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm
 
 
 
-  ![image](https://github.com/user-attachments/assets/85a9fd3e-da9d-4636-95a0-72e1afb76783)
+  https://i.pinimg.com/736x/ca/f5/35/caf5359887352242e61ebeac780c295e.jpg
 
 
 
