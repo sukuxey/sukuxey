@@ -33,7 +33,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm
 
           ᯤ i love all my moots . i'm very likely to be kinda shy when i meet someone (If it's not a problem :p) 
 ➜
- />!<img width="451" height="450" alt="image" src="https://github.com/user-attachments/assets/aa1e4d47-0d66-4341-9c9e-6b2229149175" />
+ !<img width="451" height="450" alt="image" src="https://github.com/user-attachments/assets/aa1e4d47-0d66-4341-9c9e-6b2229149175" />
 
 
  ᯓ★ More info for pjsk: My fav group is vbs, (i have a lot of fav pjsk songs)
