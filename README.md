@@ -18,6 +18,11 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm
 ☆ ╰┈➤ I really like making friends so pls bmf, i would appreciate it. . DO NOT copy my skins.
 
 
+![suho and sieun](https://github.com/user-attachments/assets/303cc16c-9eb8-4867-b85c-167ac0cb89c1)
+
+
+
+
 
   
 
