@@ -1,4 +1,4 @@
-                                                          ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
+                                                          ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ WIP
 WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm 
                                                       ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
