@@ -31,7 +31,7 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm
 
 
 
-           𝘐 𝘧𝘦𝘦𝘭 𝘭𝘪𝘬𝘦 𝘪𝘮 𝘭𝘰𝘴𝘪𝘯𝘨 𝘤𝘰𝘯𝘵𝘳𝘰𝘭. 𝘔𝘢𝘺𝘣𝘦 𝘪 𝘴𝘩𝘰𝘶𝘭𝘥 𝘭𝘦𝘵 𝘮𝘺𝘴𝘦𝘭𝘧 𝘨𝘰. 𝘊𝘢𝘶𝘴𝘦 𝘵𝘩𝘪𝘴 𝘪𝘴 𝘴𝘰 𝘱𝘳𝘦𝘥𝘪𝘤𝘵𝘢𝘣𝘭𝘦.
+           " 𝘐 𝘸𝘪𝘴𝘩 𝘦𝘷𝘦𝘳𝘺𝘰𝘯𝘦 𝘸𝘰𝘶𝘭𝘥 𝘫𝘶𝘴𝘵 𝘭𝘦𝘢𝘷𝘦 𝘮𝘦 𝘢𝘭𝘰𝘯𝘦. 𝘈𝘴 𝘪𝘧, 𝘐 𝘸𝘢𝘴𝘯'𝘵 𝘩𝘦𝘳𝘦. "
 ➜
  !<img width="451" height="450" alt="image" src="https://github.com/user-attachments/assets/aa1e4d47-0d66-4341-9c9e-6b2229149175" />
 
