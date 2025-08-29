@@ -9,9 +9,9 @@
 
 
   𐔌  𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
-     ༚ int and c+h freely ofc, but if im busy w2i please.
-     ༚ if im afk, you can c+h or int. 
-     ༚ if im already w someone, like my bf, DO NOT interact.
+   ㅤ  ༚ int and c+h freely ofc, but if im busy w2i please.
+   ㅤ  ༚ if im afk, you can c+h or int. 
+  ㅤ   ༚ if im already w someone, like my bf, DO NOT interact.
 
    
   𐔌  My socials: 
