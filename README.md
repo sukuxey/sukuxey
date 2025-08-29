@@ -1,4 +1,4 @@
-                                                          ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ WIP
+                                                          ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
  ㅤ◟ Hello, call me alan by my real name. My age is 14.
      status: taken ♡
                                                       ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
