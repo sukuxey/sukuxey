@@ -8,7 +8,7 @@
      I play games like: Roblox, Pt, Pjsk, Vrchat etc.
 
 
-  𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
+   𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
    ㅤ༚ int and c+h freely ofc, but if im busy w2i please.
      ༚ if im afk, you can c+h or int. 
   ㅤ ༚ if im already w someone, like my bf, DO NOT interact.
