@@ -1,21 +1,30 @@
                                                           ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ WIP
-WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm 
+ ㅤ◟ Hello, call me alan by my real name. My age is 14.
+     status: taken ♡
                                                       ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                              
-☆ ╰┈➤  I'm free to c+h with you, even if i have a "⛔" sign in my name, but if i'm with friends or my bf then sorry.
-
-𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼 . .
-
-
-☆ ╰┈➤ I'm Akito Shinonome stan :3 . (he's my fav . my pjsk ID is in my status) 
-
-☆ ╰┈➤ Dc: .forgottenlove , TT alt: unlovere
-
-☆ ╰┈➤ I play pjsk, pt obv, roblox, league of legends and i can play more if you'll recommend me smth.
+ㅤ𐔌  A weak hero class fan, obviously yeon si-eun's #1 fan.
+     I play games like: Roblox, Pt, Pjsk, Vrchat etc.
 
 
-☆ ╰┈➤ I really like making friends so pls bmf, i would appreciate it. . DO NOT copy my skins.
+  𐔌  𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
+     ༚ int and c+h freely ofc, but if im busy w2i please.
+     ༚ if im afk, you can c+h or int. 
+     ༚ if im already w someone, like my bf, DO NOT interact.
+
+   
+  𐔌  My socials: 
+     dc: .intheheart
+     tt alt: unlovere
+  
+
+ㅤ
+
+ㅤ
+
+
+
 
 
 ![suho and sieun](https://github.com/user-attachments/assets/303cc16c-9eb8-4867-b85c-167ac0cb89c1)
@@ -36,9 +45,9 @@ WELCOME . Hey, my name is Alan, my pronous are he/him/his. I love my bf sm
  !<img width="451" height="450" alt="image" src="https://github.com/user-attachments/assets/aa1e4d47-0d66-4341-9c9e-6b2229149175" />
 
 
- ᯓ★ More info for pjsk: My fav group is vbs, (i have a lot of fav pjsk songs)
+ 
 
 
 
 
-       ♡〰🍴🥞〰♡ . I FOLLOW BACK !! (THANK YOU ALL FOR THE FOLLOWS!!)
+        . ݁₊ ⊹ . ݁˖ . I FOLLOW BACK !! (THANK YOU ALL FOR THE FOLLOWS!!)
