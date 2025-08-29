@@ -11,6 +11,7 @@
    ㅤ༚ int and c+h freely ofc, but if im busy w2i please.
      ༚ if im afk, you can c+h or int. 
 
+
    
   𐔌ㅤ  My socials: dc: .intheheart, tt alt: unlovere
   
