@@ -17,10 +17,6 @@
   𐔌  My socials: dc: .intheheart, tt alt: unlovere
   
 
-ㅤ
-
-ㅤ
-
 
 
 
