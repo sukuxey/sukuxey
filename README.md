@@ -14,7 +14,7 @@
   ㅤ ༚ if im already w someone, like my bf, DO NOT interact.
 
    
-  𐔌  My socials: dc: .intheheart, tt alt: unlovere
+  𐔌ㅤ  My socials: dc: .intheheart, tt alt: unlovere
   
 
 
