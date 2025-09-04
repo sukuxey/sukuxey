@@ -45,6 +45,6 @@
  
 
 
-
+dont follow @szofiranze, she copied my bf's style
 
         . ݁₊ ⊹ . ݁˖ . I FOLLOW BACK !! (THANK YOU ALL FOR THE FOLLOWS!!)
