@@ -14,7 +14,7 @@
 
 
    
-  𐔌ㅤ  My socials: dc: .intheheart, tt alt: unlovere
+  𐔌ㅤ  My socials: dc: .intheheart, tt alt: div1nity.y
   
 
 
