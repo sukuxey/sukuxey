@@ -45,6 +45,6 @@
  
 
 
-
+" 𝘔𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘴𝘢𝘺 𝘪𝘵 𝘸𝘢𝘴𝘯'𝘵 𝘮𝘺 𝘧𝘢𝘶𝘭𝘵. "
 
         . ݁₊ ⊹ . ݁˖ . I FOLLOW BACK !! (THANK YOU ALL FOR THE FOLLOWS!!)
