@@ -2,9 +2,9 @@
  ㅤ◟ Hello, call me alan by my real name. My age is 14. Status: single ♡
                                                       ˚　　　　  ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
-                                                             
-ㅤ𐔌 ㅤ A weak hero class fan, obviously yeon si-eun's #1 fan.
-     I play games like: Roblox, Pt, Pjsk, Vrchat etc.
+                                                            
+ㅤ𐔌 ㅤ A weak hero class fan,  i stan enhypen,  hoonie is my bias 
+     I play games like: Roblox, Pt, Pjsk, Vrchat, Rhythm Hive, Nso, etc.
 
 
    𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
