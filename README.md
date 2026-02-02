@@ -38,7 +38,7 @@
 
 
 
-           ୨ৎㅤㅤ 𝘺𝘰𝘶𝘳ㅤ 𝘧𝘢𝘵𝘦, ㅤ𝘸𝘪𝘭𝘭ㅤ 𝘴𝘰𝘰𝘯 ㅤ𝘵𝘶𝘳𝘯 ㅤ𝘵𝘰 ㅤ𝘣𝘭𝘢𝘤𝘬.
+           ୨ৎㅤㅤ 𝘺𝘰𝘶𝘳 𝘧𝘢𝘵𝘦, 𝘸𝘪𝘭𝘭ㅤ𝘴𝘰𝘰𝘯ㅤ𝘵𝘶𝘳𝘯 𝘵𝘰 𝘣𝘭𝘢𝘤𝘬.
 ➜
  !<img width="451" height="450" alt="image" src="https://github.com/user-attachments/assets/aa1e4d47-0d66-4341-9c9e-6b2229149175" />
 
