@@ -1,5 +1,5 @@
                                                           ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
- ㅤ◟ Hello, call me alan by my real name. My age is 14. Status: single ♡
+ ㅤ◟ hello, call me alan by my real name. ㅤa minorㅤ and single
                                                       ˚　　　　  ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                             
