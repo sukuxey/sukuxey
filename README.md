@@ -4,7 +4,7 @@
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                             
 ㅤ𐔌 ㅤ i like weak hero class,  i stan enhypen,  hoonie is my bias. 
-     I play games like: Roblox, Pt, Pjsk, Vrchat, Rhythm Hive, Nso, etc.
+     I play games like: Roblox, MiSide, Pjsk, Vrchat, Rhythm Hive, Nso, etc.
 
 
    𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
