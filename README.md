@@ -10,7 +10,7 @@
    𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
    ㅤ༚ int and c+h freely ofc, but if im busy w2i please.
       ༚ if im afk, you can c+h or int. 
-        ༚ if im with someone else like my friends, do not interact.ㅤ  no age limit.    not active on pt anymore.
+        ༚ if im with someone else like my friends, do not interact.ㅤ  no age limit.    inactive.
 
 
    
