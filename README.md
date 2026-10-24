@@ -1,5 +1,5 @@
                                                           ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
- ㅤ◟ hello, call me alan by my real name. ㅤa minorㅤ and single
+ ㅤ◟ hello, call me alan by my real name. ㅤa minorㅤ and taken
                                                       ˚　　　　  ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                             
