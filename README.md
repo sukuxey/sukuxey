@@ -3,7 +3,7 @@
                                                       ˚　　　　  ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                             
-ㅤ𐔌 ㅤ i like weak hero class,  i stan enhypen,  hoonie is my bias. 
+ㅤ𐔌 ㅤㅤenhypen stan , introvert 
      I play games like: Roblox, MiSide, Pjsk, Vrchat, Rhythm Hive, Nso, etc.
 
 
