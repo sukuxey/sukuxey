@@ -2,7 +2,7 @@
  ㅤ◟ㅤㅤㅤㅤalanㅤㅤ,ㅤㅤminorㅤㅤ, ㅤtaken
                                                       ˚　　　　  ✦　　　.　　. ˚　　　　　 . ✦　　　 　˚　　　　 
 　.   　　˚　　 　*　　 　　✦　　　　.　　　✦　˚ 　　　　 ˚　　　　　　　　
-ㅤ𐔌 ㅤㅤenhypen stanㅤㅤ,ㅤㅤ introvert  ♡
+ㅤ𐔌 ㅤㅤenhypen stanㅤㅤ,ㅤㅤ introvertㅤ  ♡
 
 
    𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
