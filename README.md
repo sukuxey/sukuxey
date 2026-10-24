@@ -4,7 +4,6 @@
 　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　　.　　. 　 ˚　.　　　　 　　 　　　　        　　  
                                                             
 ㅤ𐔌 ㅤㅤenhypen stan , introvert 
-     I play games like: Roblox, MiSide, Pjsk, Vrchat, Rhythm Hive, Nso, etc.
 
 
    𝘈𝘉𝘖𝘜𝘛 𝘐𝘕𝘛𝘌𝘙𝘈𝘊𝘛𝘐𝘕𝘎:
